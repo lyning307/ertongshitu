@@ -37,4 +37,4 @@
 
 关于我方个人信息的处理的咨询请联系以下。
 
-Mail:cccg40@163.com
+Mail:lyfming@icloud.com
